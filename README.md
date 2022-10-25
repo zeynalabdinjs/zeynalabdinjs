@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **zeeynalabdin@gmail.com**
 
-- 📄 Know about my experiences [https://zeynalabdeen.com/assets/Zeynalabdin_Qedirov.pdf](https://zeynalabdeen.com/assets/Zeynalabdin_Qedirov.pdf)
+- 📄 Know about my experiences [CV](https://zeynalabdeen.com/assets/Qedirov-Zeynalabdin-CV.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
